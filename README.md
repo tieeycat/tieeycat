@@ -6,3 +6,4 @@
 </div>
 
 <p align="center"><font size="2" color="#dedede"><i>Click to play!</i></font></p>
+don't forget to go followed my main account!! https://github.com/doomtherapist
